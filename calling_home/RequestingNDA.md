@@ -1,4 +1,4 @@
-Expert Guidance: Best Practices When Requesting a Copy of an NDA
+Best Practices When Requesting a Copy of an NDA
 
 Requesting a copy of a Non-Disclosure Agreement (NDA) is a common and legitimate action, but it should be handled carefully to avoid misunderstandings, legal risk, or reputational harm. The following best practices reflect widely accepted professional, legal, and compliance standards.
 
